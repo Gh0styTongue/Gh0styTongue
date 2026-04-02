@@ -1,1 +1,3 @@
-[![Gh0styTongue's GitHub stats](https://github-readme-stats.vercel.app/api?username=gh0stytongue)](https://github.com/anuraghazra/github-readme-stats)
+Internet Archiver 🏛 | Data Hoarder 🗃 | 19 ♂️  | Pro-Innovation | Pro-ICE | Pro-Corporate | ParkRelics Legal Head | I dabble in Entertainment Leaks
+
+I like finding weird, overlooked stuff online and figuring out what’s really going on. Not really into spotlight or credit due to obvious reasons 😉, I just enjoy digging through things most people don’t notice or care about. Sometimes it’s media, sometimes it’s data, sometimes it’s something nobody was supposed to find. I keep it lowkey, but I know where to look and how to look. Just doing my thing, staying curious.
